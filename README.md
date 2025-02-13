@@ -1,0 +1,2 @@
+# Ghosted
+Regulamin dc
